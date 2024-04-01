@@ -5,6 +5,10 @@
 - 📫 How to reach me →vannessahudgena100@gmail.com...→
 
 <!---
-Vanhughes/Vanhughes is a ✨ software developer ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Vanhug-
+*Co,ti$ 
+2074033.-2316
+1..2
+1126 E 8th St, Atlanta, Ga 50303
+JP*$  Garnarr.5199110378365289.)( jP#$..
+At...now
